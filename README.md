@@ -38,7 +38,7 @@ Learning initiatives: Projects or study groups focused on new technologies or me
 
  📫 How to reach me... 
 
-Email: [khatipk14@gmail.com](mailto:piyushkhati.dev@gmail.com) 
+Email: [piyushkhati.dev@gmail.com](mailto:piyushkhati.dev@gmail.com) 
 
 LinkedIn: [linkedin.com/in/piysing14](https://linkedin.com/in/piysing14) 
 
