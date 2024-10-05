@@ -44,7 +44,7 @@ LinkedIn: [linkedin.com/in/piysing14](https://linkedin.com/in/piysing14)
 
 Twitter: [@Piyushkhati14](https://twitter.com/Piyushkhati14) 
 
-Personal Website: [www.piysing.dev](https://www.piysing.dev)
+Personal Website: [www.piysing.dev](https://piysing14.github.io/Piyush-Portfolio/)
 
   
 
